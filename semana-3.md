@@ -22,4 +22,4 @@ Também foi visto durante o curso, algumas ferramentas que ajudam na organizaç�
 - Habitica
 - Toodledo
 
-Entre outros.
+Entre outros..
