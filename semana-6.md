@@ -44,3 +44,4 @@ Nessa aula, a instrutora nos fala da importancia de buscarmos o equilibrio em to
 
 Nessa aula, a instrutora nos le a refletir sobre qual ação devmeos fazer pa alcançar os objetivos em diferentes áreas da nossa vida, como por exemplo; trabalho, negócios, finanças, e etc. Também nos é apresentado a importancia de fazer a pergunta foco, para nos ajudar a estabelecer prioridades e nos dedicarmos ao que é mais importante. Devemos nos concentrar na principais áreas de nossa vida, sendo elas; Veida espiritual, Saúde física e mental, Vida finaceira e Vida emocional. No meu caso essa é ujma reflexão que eu demoraria algum tempo nela, pois quesito religião, eu estou bem judiado e bastante decepcionado com tudo que já vi e ouvi pelas diversas religiões que já passei. E é por isso que hoje eu não tenho esse apego a nenhuma religião mas acredito que existe um criador e que é ele quem nos proporciona muitas das vitórias que temos no nosso dia a dia.
 
+
