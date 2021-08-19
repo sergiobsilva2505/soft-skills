@@ -122,12 +122,4 @@ Para termos mais consciência e desenvolvermos abordadgens mais otimistas, devem
 <br>
 
 "Positividade atrai positividade" da mesma forma que "negatividade atrai negatividade". Quando somos for gentis, agradáveis e prestativos, podermos esperar o mesmo tratamento de volta. Por outro lado, formos rude, não tivermos boas maneiras e formos indelicados, os outros não vão nos respeitar e evitarão nossa companhia, devido à nossa atitude pouco atraente ou depreciativa. Nem sempre podemos controlar os acontecimentos da vida, mas podemos controlar o que decidimos pensar e sentir a respeito deles. Você pode optar por enxergar ou não as coisas de forma positiva. Cabe a nós decidirmos.
-
-
-
-
-
-
-
-
-
+<br>
