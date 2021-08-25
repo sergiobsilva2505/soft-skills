@@ -23,7 +23,7 @@ A CNV é baseada, de modo geral, em quatro componentes. como vimos:
 - __Pedido__: As ações concretas que pedimos para enriquecer nossa vida.
 <br> <br>
 
-## Aplicação da CNV
+## Aplicação da CNV.
 
 <br>
 
