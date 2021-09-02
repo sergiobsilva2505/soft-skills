@@ -30,3 +30,5 @@ Precisamos sentir empatia para dar empatia. Quando percebemos que estamos sendo 
 
 - parar, respirar, sentir empatia por nós mesmos, ou;
 - dar-nos um tempo.
+
+
